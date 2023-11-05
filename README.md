@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **2 degrees wiser!🎓**
   
-- ✔️ I have given GATE CSE twice and achieved **AIR 39 (in 2023) and AIR 369 (in 2022)** out of ~100 thousand candidates.
+- ✔️ I've taken the GATE CSE exam twice, achieving **AIR 39 in 2023 and AIR 369 in 2022** out of ~100 thousand candidates.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
